@@ -7,4 +7,6 @@ ig noting down everything i see of them
 bit weird youre calling them that meanwhile calling yourselves "child and mother" and then started dating a while back. . .
 (according to @///theliveandthedead)
 
+# if they SOMEHOW see this i still havent forgiven you for what u did to @///theliveandthedead, shame on yourselves, disgusting.
+
 
