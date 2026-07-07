@@ -16,7 +16,7 @@ Will update this btw .
 
 update 2 // 7/7/26
 
-I feel atp they know abt this,, POSSIBLY which is good, you should. you BOTH know what you did. -Epel
+I feel atp they know abt this,, POSSIBLY which is good, you should. you BOTH know what you did, we read over the google doc they gave. -Epel
 
 ---
 
