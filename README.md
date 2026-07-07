@@ -14,5 +14,10 @@ if they SOMEHOW see this: first, good. Second, we still havent forgiven you for 
 
 Will update this btw .
 
+update 2 // 7/7/26
+
+I feel atp they know abt this,, POSSIBLY which is good, you should. you BOTH know what you did. -Epel
+
+---
 
 . Lilia
