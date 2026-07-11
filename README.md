@@ -1,4 +1,4 @@
-# These-2-give-me-the-ick
+# These-2-give-me-the-ick //
 @///vampirerere + @///Shad0ws-die-twice
 
 ig noting down everything i see of them
@@ -14,9 +14,16 @@ if they SOMEHOW see this: first, good. Second, we still havent forgiven you for 
 
 Will update this btw .
 
-update 2 // 7/7/26
+update 2 > 7/7/26
+
 
 I feel atp they know abt this,, POSSIBLY which is good, you should. you BOTH know what you did, we read over the google doc they gave. -Epel
+
+---
+
+Update. > 11/7/26
+Im dropping this, you two are pathetic. youre not gonna account for your actions, so why should i keep doing this?
+i dont care if this was MONTHS back, you didnt do it then, and youre STILL not doing it now. Dont expect another update.
 
 ---
 
