@@ -1,4 +1,4 @@
-# These-2-give-me-the-ick //
+# Deleting soon //
 THOSE 2 people.
 
 ig noting down everything i see of them
