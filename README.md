@@ -21,7 +21,7 @@ I feel atp they know abt this,, POSSIBLY which is good, you should. you BOTH kno
 
 ---
 
-Update. > 11/7/26 /very targetted
+Update. > 11/7/26 
 Im dropping this, you two are pathetic. youre not gonna account for your actions, so why should i keep doing this?
 i dont care if this was MONTHS back, you didnt do it then, and youre STILL not doing it now. Dont expect another update.
 
